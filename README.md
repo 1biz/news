@@ -5,11 +5,6 @@ Now I want to see if this page will be indexed by search engines.
 
 ### Visit sites
 
-[https://www.mjobmarket.com](https://www.mjobmarket.com)
-
-Micro Job Market is a special site dedicated to freelancers.  
-Any freelancer can post to self-promote, put up all your contact details that you want to be public to attract new customers; showcase your profile, your website or your blog all in one place.
-
 [https://www.topicnews.cn](https://www.topicnews.cn)
 
 Topic News is a professional online news release distribution platform specializese in press releases in China.
